@@ -1,0 +1,10 @@
+-  sup, I’m @Squeenixu (she/her)
+- interested in nintendo console modding/hacking
+- i’m currently learning C# but probably should be learning C or something
+- i’m looking to collaborate on ... nothing really i'm just sort of here
+- how to reach me: don't, why are you even here how did you get here get out of my house
+ok i have a twiiter but it's hell there DON'T JOIN. (@Squeenixu)
+
+<!---
+ballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballsballs
+--->
